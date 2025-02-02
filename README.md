@@ -1,2 +1,4 @@
 # Invadium
-A strategy game because I want to play it. (’・ω・｀)
+A strategy game.  
+Q. Why do you(means sharpedmimisee) make this?  
+Because I want to play it. (’・ω・｀)
